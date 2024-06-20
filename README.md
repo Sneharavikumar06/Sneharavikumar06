@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Sneharavikumar06 
-- 👀 I’m interested in Technical Research Analist ans Data Analyst
+- 👀 I’m interested in Technical Research Analist and Data Analyst
 - 🌱 I’m currently learning B.Tech in Information Technology
 - 😄 Pronouns: Sneha
 
